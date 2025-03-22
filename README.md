@@ -1,4 +1,4 @@
-Hunters Fashion House🛒
+Kusammy's Store🛒
 Refresh Your Wardrobe!🛍️
 
 With a passion for fashion here's my very own custom website relating to it.💃
